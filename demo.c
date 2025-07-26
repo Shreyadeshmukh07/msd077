@@ -1,1 +1,0 @@
-smriti khup goad ahe
